@@ -1,1 +1,1 @@
-# sexualityUncovered
+# sexQuipped
